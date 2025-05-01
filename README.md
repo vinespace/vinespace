@@ -1,9 +1,8 @@
-![image](https://github.com/user-attachments/assets/0baea7a8-4814-43c3-874b-ab3b872d459f)
 
 ![image](https://github.com/user-attachments/assets/fa38c1ae-0bca-480f-8246-a34d3b1b3af4)
 
 
-![image](https://github.com/user-attachments/assets/4a3555fb-9190-4813-b47a-629b44f13ae4)
+art made by me
 
 
 
