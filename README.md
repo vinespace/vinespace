@@ -4,7 +4,6 @@
 
 
 
-art made by me
 
 
 
