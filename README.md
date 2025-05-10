@@ -1,6 +1,4 @@
-
-![](file:///Users/830029/Downloads/ezgif.com-animated-gif-maker%20(1).gif)
-
+![](https://files.catbox.moe/c0s6za.gif)
 
 
 
