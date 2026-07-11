@@ -1,7 +1,7 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 <p align="center">
-<img width="200" height="200" alt="image" src="https://images-ext-1.discordapp.net/external/13VWEZcfjhlDbrbJdPBsEHiHgnqf39o6NC-AJQNEo3s/https/i.pinimg.com/736x/4d/e1/5a/4de15a9e48b6b7703c7784bf11200d53.jpg?format=webp&width=1412&height=1412" />
+<img width="1432" height="666" alt="image" src="https://github.com/user-attachments/assets/66ccb700-8523-41f8-978d-e9badc95a7b8" />
 </p>
 ‎‎‎‎<p align="center">  <a href="https://www.rentry.co/retrosrentry">rentry</a>
 </p
