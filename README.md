@@ -3,7 +3,7 @@
 <p align="center">
 <img width="1432" height="666" alt="image" src="https://github.com/user-attachments/assets/66ccb700-8523-41f8-978d-e9badc95a7b8" />
 </p>
-‎‎‎‎<p align="center">  <a href="https://www.rentry.co/retrosrentry">rentry</a> ♡
+‎‎‎‎<p align="center">  <a href="https://www.rentry.co/retrosrentry">rentry</a>  ♡  <a href="https://artfight.net/~usagichiikawa">artfight</a>
 </p
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
