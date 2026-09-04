@@ -1,6 +1,6 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
-<p align="center"><img width="188" height="232" alt="image" src="https://github.com/user-attachments/assets/8d21035b-c832-415a-9556-e3143131c7cd" />
+s
 
 ‎‎‎‎<p align="center">  <a href="https://rentry.co/cutedreamz">rentry</a>  ♡  <a href="https://retrostat.straw.page">strawpage</a>
 </p
