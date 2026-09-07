@@ -7,7 +7,7 @@
 
 
 ‎‎‎‎
-<p align="center">  <a href="yurigem.mmm.page">mmm.page</a>     ‎  ‎ 🏹     ‎  ‎   <a href="https://retrostat.straw.page">strawpage!</a>
+<p align="center">  <a href="https://yurigem.mmm.page">mmm.page</a>     ‎  ‎ 🏹     ‎  ‎   <a href="https://retrostat.straw.page">strawpage!</a>
 </p
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
